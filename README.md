@@ -3,6 +3,7 @@ At Slots Name, we are committed to providing the ultimate online gaming experien
 Our mission is to deliver fun, secure, and engaging gameplay for everyone. Whether you’re a casual player or a seasoned gamer, Slots Name brings you high-quality entertainment combined with top-notch technology.
 
 Contact us: +911130446402
-Location: Worldmark 2, Aerocity, New Delhi, India
+
+Location: Worldmark 2, Aerocity, New Delhi, Delhi 110037, India
 
 Explore more and play now at Slots Name. https://slotsname.com/
